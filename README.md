@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-My name is Nattakit CHantara-aree, you can call me Marty.
+My name is Nattakit Chantara-aree, you can call me Marty.
 
 - 📚 Freshman at (soon)
 - 🏫 Graduated From Suankularb wittayalai Rangsit School
