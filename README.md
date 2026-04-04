@@ -2,6 +2,6 @@
 
 My name is Nattakit Chantara-aree or Marty!
 
-- 📚 Freshman at (soon)
+- 📚 Year 1 @ Informational Technology, KMITL
 - 🏫 Graduated From Suankularb wittayalai Rangsit School
-- 🚀 I'm Interested in Network, Cybersecurity and AI.
+- 🚀 I'm interested in Network, Cybersecurity and Artificial Intelligence.
